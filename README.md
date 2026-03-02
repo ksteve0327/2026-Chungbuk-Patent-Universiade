@@ -1,1 +1,1 @@
-# 2026-CBPU
+# 2026-Chungbuk-Patent-Universiade
